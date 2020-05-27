@@ -4,11 +4,13 @@
 Julius Fischer
 ============
 
--------------------		----------------------------
-Sandsteinplattenweg 1  sandsteinplattenwegbewohner@guugel.de
+-------------------
+Sandsteinplattenweg 1
 Berlin
-Deutschland				 TEL 010101010101010
--------------------		----------------------------
+Deutschland	
+TEL 010101010101010
+sandsteinplattenwegbewohner@guugel.de
+-------------------
 
 Schulisch
 ---------
