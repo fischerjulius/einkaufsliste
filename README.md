@@ -15,7 +15,7 @@ sandsteinplattenwegbewohner@guugel.de
 Schulisch
 ---------
 
-2019-2022 (voraussichtlich)
+2019-2022 (voraussichtlich)  
 :   **B. Sc, in Computer Science**; Hochschule Furtwangen
 
 
